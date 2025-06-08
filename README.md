@@ -1,5 +1,5 @@
 # just.me 
--> first repo to try out what the hype is really about xD, more about me :)
+-> first repo to try out what the hype is really about xD
 <br>
 ✿ Name: Jiya Shah
 <br>
