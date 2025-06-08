@@ -1,4 +1,4 @@
-# just.me 
+# special.stuff
 -> first repo to try out what the hype is really about xD
 <br>
 ✿ Name: Jiya Shah
